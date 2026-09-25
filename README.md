@@ -19,6 +19,8 @@ so feel free to avoid me :)
 
 # fandoms .
 
-main fandoms : creepypasta, marble hornets, emh, btd, chilling devotion, elevator hitch, mabtpis
-side fandoms : eq, dead plate, cold front, rot in paradise, married in red, JHD9000
-!! i'm a dating visual novel fanatic, ask me about them all you want! i'd love to talk about them ⟢
+main fandoms : creepypasta, marble hornets, emh, btd, chilling devotion, elevator hitch, mabtpis,
+side fandoms : eq, dead plate, cold front, rot in paradise, married in red, JHD9000, teag, mlp, regretevator, dod, sfawtde, pusheen
+!! i'm a dark/romance visual novels fanatic, ask me about them all you want! i'd love to talk about them ⟢
+
+kins : ren (ESPECIALLY ren), lawrence, rody, protag, kasper/infected, poob
