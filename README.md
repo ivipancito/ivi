@@ -8,6 +8,8 @@ most of my friends on pony town might call me fox/anon, i accept those too .
 
 # pony town stuff .
 
+!! GUYS i don't whitewash my ponies... they're tinted/desaturated, that's why they look dull
+
 DNI : usual dni ; anyb under 16, 15 MINIMUM ; vanilla/sensitive people ⟢
 
 ints & cuddles & hugs are welcome!
