@@ -1,10 +1,10 @@
 # about me .
 
-hHey there! i'm naz/vel ⟢
+hHey there! i'm naz ⟢
 This is pony town stuff so go ahead & take a look .
 
 ! my times on pony town are unstable, if you want to keep contact, add me on discord .
-most of my friends on pony town might call me fox/anon, i accept those too .
+most of my friends on pony town might call me ren/fox/anon/vel/velvet, i accept those too .
 
 # pony town stuff .
 
